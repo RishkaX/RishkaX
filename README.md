@@ -4,7 +4,7 @@
 
 ## I'm a Student, and FreeLance
 - 🤪 I like to write code
-- 🎉 I love to food and play video games
+- 😋 I love to food and play video games
 - 😎 I love writing an article for 
 
 ### Connect with me:
