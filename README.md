@@ -2,7 +2,7 @@
 
 ![](https://komarev.com/ghpvc/?username=RishkaX)
 
-## I'm a Student, and FreeLance
+## I'm a Student
 - 🤪 I like to write code
 - 😋 I love to food and play video games
 - 😎 I love writing an article for 
